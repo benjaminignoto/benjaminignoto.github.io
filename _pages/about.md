@@ -20,6 +20,6 @@ Environmental Economics · Biodiversity Economics · Public Economics · Politic
 Education
 ------
 * **PhD in Economics**, University of Neuchâtel, 2022 – present
-* **Visiting PhD Student**, Massachusetts Institute of Technology, 2025
+* **Visiting PhD Student**, Massachusetts Institute of Technology, [Center for Sustainability Science and Strategy(https://cs3.mit.edu)], 2025
 * **MSc in Applied Economics**, University of Neuchâtel, 2022 (*summa cum laude*)
 * **BSc in Economics**, University of Neuchâtel, 2020 (*magna cum laude*)
